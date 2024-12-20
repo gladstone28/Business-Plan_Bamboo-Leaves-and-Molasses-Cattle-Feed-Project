@@ -1,9 +1,7 @@
-link to AI:
-
-https://chatgpt.com/c/67658ffd-6710-8006-add8-92626b0dae56
+Produced by Gladstone Rose (Quality Solutions Limited)
 
 
-Business Plan: Bamboo Leaves and Molasses Cattle Feed Project
+## Business Plan: Bamboo Leaves and Molasses Cattle Feed Project
 
 ##### Executive Summary
 
